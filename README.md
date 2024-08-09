@@ -1,1 +1,1 @@
-# Paran-
+# Paraná
